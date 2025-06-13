@@ -1,0 +1,1 @@
+Artificial Cognition for Applications in Smart Agriculture
